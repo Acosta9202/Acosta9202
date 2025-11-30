@@ -1,9 +1,9 @@
-👦🏻 *Lenny Acosta Gaston / Dándole el Cierre a la Tecnicatura en informatica*
- -  Interes en el desarollo de Aplcaciones Web.
+👦🏻 *Lenny Acosta Gaston / Dándole el Cierre a la Tecnicatura en informática*
+ -  Interés en el desarollo de Aplcaciones Web.
 
- -  Habilidades: Manejo de HTML y CSS para crear paginas estáticas y dinámicas.
+ -  Habilidades: Manejo de HTML y CSS para crear páginas estáticas y dinámicas.
 
- -  Proyeccion: Busco desarrollar mi fluidez en el idioma "Ingles" para el ambito profesional.
+ -  Proyección a futuro: Busco desarrollar mi fluidez en el idioma "Inglés" para el ámbito profesional.
 
    
  
