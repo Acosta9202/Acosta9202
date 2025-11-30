@@ -1,4 +1,4 @@
-#👦🏻 Lenny Acosta Gaston / Dándole el Cierre a la Tecnicatura en informatica
+👦🏻 Lenny Acosta Gaston / Dándole el Cierre a la Tecnicatura en informatica
  -  Interes en el desarollo de Aplcaciones Web.
 
  -  Habilidades: Manejo de HTML y CSS para crear paginas estáticas y dinámicas.
